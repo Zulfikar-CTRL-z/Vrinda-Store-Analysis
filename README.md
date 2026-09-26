@@ -1,3 +1,7 @@
+<img width="1867" height="714" alt="Screenshot 2026-09-04 115705" src="https://github.com/user-attachments/assets/f3843174-38f8-4686-ae77-fa5dbad53a47" />
+
+
+
 ## Key Insights
 
 * **Women have a higher purchase rate than men**, indicating that women are the major customer segment.
